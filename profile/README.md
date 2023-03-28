@@ -1,1 +1,4 @@
+
 # Enactus UniTs
+
+Our mission is to bring together the next generation of entrepreneurial leaders to create a better, more sustainable world through innovation and the positive power of business. Enactus is an international non-profit organization that believes investing in students, who take ENtrepreneurial ACTion for others, creates a better world for US all. Guided by academic advisors and business experts, the student leaders of Enactus create and implement community empowerment projects around the globe. The experience not only makes a real impact on communities: addressing real problems enables students to develop the professional skills and talents that are essential in an ever-more complicated environment. Enactus has 70.500+ participating students at 1.700+ universities in 36 different countries around the world. The community projects impacted 1.950.000+ people last year.
